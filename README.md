@@ -1,2 +1,8 @@
-# Instal-wallpapers
-Instal SRL© official wallpaper repo
+# 🖼️ Instal-wallpapers
+
+INSTAL OFFICIAL WALLPAPERS REPO
+
+
+---
+*Maintained by the Instal crew.*
+Yosh! 🎨
